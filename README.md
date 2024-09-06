@@ -11,3 +11,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 você pode entrar em contato comigo
 00001096225517sp@al.educacao.sp.gov.br
+![](https://pt.memedroid.com/memes/detail/2707347)
